@@ -4,7 +4,7 @@
 
 - 📫 How to reach me **nhatns.uet@gmail.com**
 
-- ⚡ Fun fact **I like football, running, reading, movies...**
+- ⚡ **I like football, running, reading, movies...**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
